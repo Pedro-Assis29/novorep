@@ -1,3 +1,3 @@
 # novorep
 
-Milena <3
+Milena Cassadora de Sapos
